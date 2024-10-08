@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: Strong orange juice over apple juice advocate
 -->
+
+Resume: 
+Northeastern University 2024-2028
+Millennium High School 2020- 2024
